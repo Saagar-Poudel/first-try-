@@ -1,2 +1,2 @@
 # first-try-
-made by sagar poudel
+made by Sagar poudel
